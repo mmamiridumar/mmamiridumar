@@ -14,3 +14,4 @@
 
 ---
 *You can connect with me via email or check my ORCID profile above.*
+📬 **Contact Me:** [mamiridumar@gmail.com](mailto:mamiridumar@gmail.com)
